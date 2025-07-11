@@ -37,6 +37,7 @@ Du hast Fragen, Anregungen oder möchtest mit uns zusammenarbeiten?
 📧 backoffice@needful-apps.de  
 🌐 [https://www.needful-apps.de](https://www.needful-apps.de)  
 🔗 [LinkedIn – needful-apps](https://www.linkedin.com/company/needful-apps/)
+🧑‍🏫 [Unsere Kurse und Schulungen](https://www.needful-apps.de/schulungen)
 
 ---
 
